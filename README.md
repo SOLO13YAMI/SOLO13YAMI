@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SOLO13YAMI
+- 👋 Hi, I’m Y@mini 
 - 👀 I’m interested in .h@king..
 - 🌱 I’m currently learning ..h@king
 - 💞️ I’m looking to collaborate on ...
