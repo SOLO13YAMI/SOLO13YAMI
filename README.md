@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Y@mini 
-- 👀 I’m interested in .h@king..
-- 🌱 I’m currently learning ..h@king
+- 👀 I’m interested in .programming .
+- 🌱 I’m currently learning .programming .
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
